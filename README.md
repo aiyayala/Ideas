@@ -1,4 +1,4 @@
 # Ideas
 
 Penguin v1.0 :D 
-</br>![penguin](https://user-images.githubusercontent.com/45225968/59958144-d4900600-946f-11e9-8fc1-10840e545eea.jpg)
+</br>![penguin 1 0](https://user-images.githubusercontent.com/45225968/59958169-259ffa00-9470-11e9-900b-46e4d880774b.jpg)
